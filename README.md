@@ -1,0 +1,3 @@
+# Initial Text
+
+:smiley: :star:	
